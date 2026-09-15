@@ -1,0 +1,3 @@
+User-agent: *
+Allow: /
+Sitemap: https://bravecat79.github.io/yukanote-index/sitemap.xml
