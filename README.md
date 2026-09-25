@@ -5,9 +5,11 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (88편)
+## 글 목록 (90편)
 
 - [IRT6030 브라운체온계, 밤에 재는 일 많은 집이라면](https://m.blog.naver.com/zova1/224421935846) · 2026-09-24
+- [베베드피노 90사이즈는 신상품과 베스트 중 어디에 있을까요](https://m.blog.naver.com/zova1/224421938996) · 2026-09-24
+- [2027년 아동수당 대상, 7월 1일 출생부터 갈립니다](https://m.blog.naver.com/zova1/224421942780) · 2026-09-24
 - [제주 산후조리원 이용 후 60일, 산후조리비 신청 순서](https://m.blog.naver.com/zova1/224419250071) · 2026-09-22
 - [입덧 끝나는 시기, 10주에 안 끝나도 괜찮은 이유](https://m.blog.naver.com/zova1/224419252859) · 2026-09-22
 - [와이업 티코와 지니에스3, 번호 확인 순서 정리](https://m.blog.naver.com/zova1/224419255063) · 2026-09-22
