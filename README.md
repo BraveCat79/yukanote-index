@@ -5,10 +5,12 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (86편)
+## 글 목록 (88편)
 
+- [IRT6030 브라운체온계, 밤에 재는 일 많은 집이라면](https://m.blog.naver.com/zova1/224421935846) · 2026-09-24
 - [제주 산후조리원 이용 후 60일, 산후조리비 신청 순서](https://m.blog.naver.com/zova1/224419250071) · 2026-09-22
 - [입덧 끝나는 시기, 10주에 안 끝나도 괜찮은 이유](https://m.blog.naver.com/zova1/224419252859) · 2026-09-22
+- [와이업 티코와 지니에스3, 번호 확인 순서 정리](https://m.blog.naver.com/zova1/224419255063) · 2026-09-22
 - [보르르 분유포트 유리 1.3리터, 차까지 끓이는 쓰임](https://m.blog.naver.com/zova1/224418143712) · 2026-09-21
 - [젖병 세척솔 소독 주기, 매 수유 후와 주 1회로 나눠서](https://m.blog.naver.com/zova1/224418149330) · 2026-09-21
 - [올보르 트라이크 고르는 순서, 모델부터 캐리어까지](https://m.blog.naver.com/zova1/224418220380) · 2026-09-21
