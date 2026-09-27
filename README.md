@@ -5,8 +5,9 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (96편)
+## 글 목록 (97편)
 
+- [신생아 스와들업, 조리원부터 입힐 거라면 NB와 S 차이부터](https://m.blog.naver.com/zova1/224422834753) · 2026-09-26
 - [릴리브 분유포트 3세대, 출수가 안 될 때 먼저 볼 곳은 어디일까요](https://m.blog.naver.com/zova1/224422265868) · 2026-09-25
 - [타보 유모차 레노2와 타보 트라이크, 우리 아이는 어느 쪽일까요](https://m.blog.naver.com/zova1/224422588355) · 2026-09-25
 - [베베루나 아기 물티슈는 공식 라인에 없어요, 헷갈리는 베베숲과 차이](https://m.blog.naver.com/zova1/224422591034) · 2026-09-25
