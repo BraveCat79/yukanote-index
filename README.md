@@ -5,11 +5,12 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (126편)
+## 글 목록 (127편)
 
 - [머미쿨쿨 역류방지쿠션, 경사 9.8°에서 갈리는 것](https://m.blog.naver.com/zova1/224429056184) · 2026-10-02
 - [육아휴직 국민연금 추납 신청, 서류 1장과 확인 전화 1통](https://m.blog.naver.com/zova1/224429058033) · 2026-10-02
 - [아동수당 증여세, 만 9세 미만까지 쌓이는 돈 두는 자리](https://m.blog.naver.com/zova1/224429059858) · 2026-10-02
+- [네파키즈 바람막이 고를 때 볼 것 2가지, 후드와 사이즈](https://m.blog.naver.com/zova1/224429839827) · 2026-10-02
 - [아기침대 추천 전에 신생아침대와 범퍼침대부터 가르기](https://m.blog.naver.com/zova1/224427766663) · 2026-10-01
 - [기저귀가방 추천 3종, 보냉과 물티슈 포켓 차이](https://m.blog.naver.com/zova1/224427768497) · 2026-10-01
 - [하카 유축기, 직수 중 반대쪽 모유를 받으려는 엄마라면](https://m.blog.naver.com/zova1/224427773583) · 2026-10-01
