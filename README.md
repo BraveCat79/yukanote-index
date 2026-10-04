@@ -5,9 +5,10 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (117편)
+## 글 목록 (118편)
 
 - [뽀로로 장난감, 12개월 전 아기라면 아직 이른 이유](https://m.blog.naver.com/zova1/224430156821) · 2026-10-03
+- [뽀로로 네비 검색했다면, 뮤지컬버스 오리지널과 업그레이드 차이](https://m.blog.naver.com/zova1/224430588424) · 2026-10-03
 - [머미쿨쿨 역류방지쿠션, 경사 9.8°에서 갈리는 것](https://m.blog.naver.com/zova1/224429056184) · 2026-10-02
 - [육아휴직 국민연금 추납 신청, 서류 1장과 확인 전화 1통](https://m.blog.naver.com/zova1/224429058033) · 2026-10-02
 - [아동수당 증여세, 만 9세 미만까지 쌓이는 돈 두는 자리](https://m.blog.naver.com/zova1/224429059858) · 2026-10-02
