@@ -5,9 +5,10 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (137편)
+## 글 목록 (138편)
 
 - [10월 축제 일정, 10월 11일에 끝나는 곳과 남는 곳](https://m.blog.naver.com/zova1/224433742287) · 2026-10-07
+- [유모차 순위 찾는 중이라면, 신생아부터 태울지 먼저](https://m.blog.naver.com/zova1/224434421721) · 2026-10-07
 - [그로미미 빨대컵 스텐 돗꼼, PPSU 모델과 갈리는 세 가지](https://m.blog.naver.com/zova1/224432537904) · 2026-10-06
 - [임산부 친환경 농산물 꾸러미 에코이몰 신청 4단계와 막히는 곳](https://m.blog.naver.com/zova1/224432604602) · 2026-10-06
 - [배란일 계산기 실제 차이, 체온·테스트기·초음파 3가지로 좁히기](https://m.blog.naver.com/zova1/224432617891) · 2026-10-06
