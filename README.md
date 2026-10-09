@@ -5,9 +5,13 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (143편)
+## 글 목록 (147편)
 
 - [허그파파 다이얼핏 PRO, 670g대 올인원이 맞는 집은 어디일까요](https://m.blog.naver.com/zova1/224435546340) · 2026-10-08
+- [아기매트 추천 2종, 구조·사이즈·인증 3가지로 비교](https://m.blog.naver.com/zova1/224435549800) · 2026-10-08
+- [아기 치아 나는 순서, 13개월에 앞니만 있어도 될까요](https://m.blog.naver.com/zova1/224435553146) · 2026-10-08
+- [시흥갯골생태공원, 축제 끝난 10월에 아이랑 갈 때 볼 것](https://m.blog.naver.com/zova1/224435556535) · 2026-10-08
+- [RSV 증상 지켜볼 때, 숨소리와 기저귀 2가지부터](https://m.blog.naver.com/zova1/224435559826) · 2026-10-08
 - [10월 축제 일정, 10월 11일에 끝나는 곳과 남는 곳](https://m.blog.naver.com/zova1/224433742287) · 2026-10-07
 - [유모차 순위 찾는 중이라면, 신생아부터 태울지 먼저](https://m.blog.naver.com/zova1/224434421721) · 2026-10-07
 - [점퍼루 고민 중이라면, 거실 크기와 걸음마부터 보세요](https://m.blog.naver.com/zova1/224434424466) · 2026-10-07
