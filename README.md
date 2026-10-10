@@ -5,8 +5,9 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (147편)
+## 글 목록 (148편)
 
+- [베베그로우 젖병 160ml, 신생아 첫 젖병으로 맞을까요](https://m.blog.naver.com/zova1/224436444005) · 2026-10-09
 - [허그파파 다이얼핏 PRO, 670g대 올인원이 맞는 집은 어디일까요](https://m.blog.naver.com/zova1/224435546340) · 2026-10-08
 - [아기매트 추천 2종, 구조·사이즈·인증 3가지로 비교](https://m.blog.naver.com/zova1/224435549800) · 2026-10-08
 - [아기 치아 나는 순서, 13개월에 앞니만 있어도 될까요](https://m.blog.naver.com/zova1/224435553146) · 2026-10-08
