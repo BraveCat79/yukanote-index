@@ -5,9 +5,11 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (161편)
+## 글 목록 (163편)
 
 - [젖병 추천 전에 소재부터, PPSU와 유리의 차이](https://m.blog.naver.com/zova1/224438449006) · 2026-10-12
+- [RSV 접종 가격, 병원마다 다른 금액 조회하는 4단계](https://m.blog.naver.com/zova1/224438748585) · 2026-10-12
+- [네파키즈패딩 덕다운 롱패딩, 구스와 갈리는 지점 하나](https://m.blog.naver.com/zova1/224439337271) · 2026-10-12
 - [아기방수패드, 건조기에 넣어도 되는 온도는 몇 도일까요](https://m.blog.naver.com/zova1/224437529270) · 2026-10-11
 - [롤베이비 원형러그와 면100수 러그, 충전재 구성 차이](https://m.blog.naver.com/zova1/224438169581) · 2026-10-11
 - [물티슈20팩 팩당 매수 놓치면 총 600장 차이 납니다](https://m.blog.naver.com/zova1/224438171991) · 2026-10-11
