@@ -5,11 +5,12 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (167편)
+## 글 목록 (168편)
 
 - [범보의자 대신 휴대용 부스터, 6개월 아기라면 살 만할까요](https://m.blog.naver.com/zova1/224439732192) · 2026-10-13
 - [POLHAM 키즈 3팩 반팔티, 7세 미만 아이도 입을 수 있나요](https://m.blog.naver.com/zova1/224439740891) · 2026-10-13
 - [자연단유 방법, 혼합수유 중이라면 낮 수유부터](https://m.blog.naver.com/zova1/224439778532) · 2026-10-13
+- [아프리콧 텀블러 스토조 비기 470ml, 살 만한 컵일까요](https://m.blog.naver.com/zova1/224440557563) · 2026-10-13
 - [젖병 추천 전에 소재부터, PPSU와 유리의 차이](https://m.blog.naver.com/zova1/224438449006) · 2026-10-12
 - [RSV 접종 가격, 병원마다 다른 금액 조회하는 4단계](https://m.blog.naver.com/zova1/224438748585) · 2026-10-12
 - [네파키즈패딩 덕다운 롱패딩, 구스와 갈리는 지점 하나](https://m.blog.naver.com/zova1/224439337271) · 2026-10-12
