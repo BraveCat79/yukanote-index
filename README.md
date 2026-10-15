@@ -5,9 +5,11 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (172편)
+## 글 목록 (174편)
 
+- [조이카시트 아이피벗360과 인펀트 카시트, 키 20cm 차이](https://m.blog.naver.com/zova1/224440932419) · 2026-10-14
 - [유치원 우선모집 조건, 11월 4일 넘기면 일반모집 추첨만](https://m.blog.naver.com/zova1/224441159787) · 2026-10-14
+- [퍼기 이유식큐브 12구와 새 10구, 칸 용량 차이](https://m.blog.naver.com/zova1/224441711582) · 2026-10-14
 - [범보의자 대신 휴대용 부스터, 6개월 아기라면 살 만할까요](https://m.blog.naver.com/zova1/224439732192) · 2026-10-13
 - [POLHAM 키즈 3팩 반팔티, 7세 미만 아이도 입을 수 있나요](https://m.blog.naver.com/zova1/224439740891) · 2026-10-13
 - [자연단유 방법, 혼합수유 중이라면 낮 수유부터](https://m.blog.naver.com/zova1/224439778532) · 2026-10-13
