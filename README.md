@@ -5,9 +5,10 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (207편)
+## 글 목록 (208편)
 
 - [올림픽공원 900대 드론쇼, 알고 보니 주말 아닌 23일 금요일 밤](https://m.blog.naver.com/zova1/224446078830) · 2026-10-19
+- [폴햄키즈 바람막이, 120~160 공용이라 남매가 같은 모델로 입는다](https://m.blog.naver.com/zova1/224446865075) · 2026-10-19
 - [손발 발진 없어도 수족구일 수 있다, 아기 수족구 증상 순서의 예외](https://m.blog.naver.com/zova1/224445081559) · 2026-10-18
 - [폴레드카시트 13kg, 차 두 대에 옮겨 달면 매번 드는 무게](https://m.blog.naver.com/zova1/224445173010) · 2026-10-18
 - [닥터노아칫솔 평점 4.91, 그래도 주문 전에 확인할 표기 하나](https://m.blog.naver.com/zova1/224445710307) · 2026-10-18
