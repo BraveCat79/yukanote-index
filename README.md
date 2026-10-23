@@ -5,8 +5,9 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (227편)
+## 글 목록 (228편)
 
+- [버블트리 센서등, 사기 전 '이 번호' 하나로 안전인증 확인하는 법](https://m.blog.naver.com/zova1/224450832063) · 2026-10-23
 - [스디파 재방송 시간표가 안 나오는 이유, 안내엔 '수시 방영'뿐](https://m.blog.naver.com/zova1/224449581210) · 2026-10-22
 - [늘봄학교 식생활교육, 모든 학교가 여는 수업은 아닙니다](https://m.blog.naver.com/zova1/224449588238) · 2026-10-22
 - [펜디키즈 판초 리뷰 12건, 작은 사이즈는 엉덩이가 덜 덮인다](https://m.blog.naver.com/zova1/224450174366) · 2026-10-22
