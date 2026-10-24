@@ -5,8 +5,9 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (234편)
+## 글 목록 (235편)
 
+- [키즈 경량패딩 고르는 순서, 몽클레르 LIANE은 핏이 첫 단계](https://m.blog.naver.com/zova1/224451800276) · 2026-10-24
 - [같은 셋째인데 하남은 200만원, 태안은 2027년부터 1000만원](https://m.blog.naver.com/zova1/224450722843) · 2026-10-23
 - [미니로디니 패딩 받자마자 택 떼면 교환이 막히는 곳도 있다](https://m.blog.naver.com/zova1/224450724289) · 2026-10-23
 - [주운 쓰레기가 기념품으로, 강진만 생태 놀이터 축제 9일간 무료](https://m.blog.naver.com/zova1/224450735117) · 2026-10-23
