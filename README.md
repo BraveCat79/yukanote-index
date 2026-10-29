@@ -5,8 +5,9 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (261편)
+## 글 목록 (262편)
 
+- [노스페이스 키즈 패딩조끼 벤투스의 정체는 번호 끝 S 한 글자](https://m.blog.naver.com/zova1/224457305400) · 2026-10-29
 - [키즈롱패딩 사이즈, 리뷰 22건에서 되풀이된 '크게 나온다'](https://m.blog.naver.com/zova1/224456036766) · 2026-10-28
 - [크록스 사이즈표 11, 리뷰 104건 속 크록스 에코 클로그 사이즈 팁](https://m.blog.naver.com/zova1/224456062277) · 2026-10-28
 - [유림공원 국화축제 갈 때 공원 옆 주차장부터 찾지 마세요](https://m.blog.naver.com/zova1/224456063684) · 2026-10-28
