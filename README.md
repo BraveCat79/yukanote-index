@@ -5,8 +5,9 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (271편)
+## 글 목록 (272편)
 
+- [키즈후리스 나이키 쉐르파는 7세여도 키 122cm 넘으면 맞는 칸이 없다](https://m.blog.naver.com/zova1/224459730281) · 2026-10-31
 - ["1월생부터라고?" 아동수당법 개정안이 그은 출생일 선](https://m.blog.naver.com/zova1/224458449658) · 2026-10-30
 - [아기 수면조끼 꿀잠슈트 리뷰 9,590건이 되풀이한 아쉬움 하나](https://m.blog.naver.com/zova1/224458521929) · 2026-10-30
 - ['다이소 유모차 장갑' 대신 찾은 핸드머프는 남편 손도 들어간다](https://m.blog.naver.com/zova1/224458606902) · 2026-10-30
