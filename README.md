@@ -5,8 +5,10 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (299편)
+## 글 목록 (301편)
 
+- [아기 신발 네임택, 끈 없는 벨크로 신발엔 어디에 다나요](https://m.blog.naver.com/zova1/224466790832) · 2026-11-06
+- [마롤로뜨 아기띠 워머 펼치면 80×85cm 담요가 되는 크기](https://m.blog.naver.com/zova1/224466857953) · 2026-11-06
 - [익산 보물찾기 축제 참가비 5000원에 금 1돈이 걸렸다](https://m.blog.naver.com/zova1/224465427685) · 2026-11-05
 - [찬우물 아기동물원 11월부터는 5시 마감, 6시 생각하고 가지 마세요](https://m.blog.naver.com/zova1/224465474005) · 2026-11-05
 - [유보통합포털 접수확인 화면에 '이 글자' 뜨면 추첨에서 빠져요](https://m.blog.naver.com/zova1/224465550182) · 2026-11-05
