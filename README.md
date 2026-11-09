@@ -5,9 +5,10 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (307편)
+## 글 목록 (308편)
 
 - [유모차 핸드머프 고를 때 브랜드보다 핸들 가운데를 보는 이유](https://m.blog.naver.com/zova1/224468805135) · 2026-11-08
+- [겨울 아기띠 워머 하나로 안을 때도 유모차 탈 때도 덮는 코트형](https://m.blog.naver.com/zova1/224469383629) · 2026-11-08
 - [맘노코 방풍커버 설치, 부가부 말고 다른 유모차에도 씌울 수 있을까](https://m.blog.naver.com/zova1/224467913417) · 2026-11-07
 - [겨울왕국 뮤지컬 미취학 아이는 입장 불가, 공연은 3월 1일까지](https://m.blog.naver.com/zova1/224468094646) · 2026-11-07
 - [ESL 수유자세 젖병, 세우면 사레가 나고 낮추면 공기가 찬다](https://m.blog.naver.com/zova1/224468098333) · 2026-11-07
