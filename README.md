@@ -5,8 +5,11 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (327편)
+## 글 목록 (330편)
 
+- [신생아 딤플 초음파 정상이어도 MRI를 6개월 안에 찍는 이유](https://m.blog.naver.com/zova1/224476600892) · 2026-11-14
+- [하베브릭스 아기체육관 조립 뒤엔 접어서 보관하는 접이식 구조](https://m.blog.naver.com/zova1/224476604521) · 2026-11-14
+- [목동 아이스링크 평일 오후 2시 개장, 주말은 정오에 빙판이 열려요](https://m.blog.naver.com/zova1/224477048023) · 2026-11-14
 - [아비노베이비 더멕사 나이트밤, 사용 연령은 1세부터](https://m.blog.naver.com/zova1/224473652815) · 2026-11-12
 - [오우아스튜디오 미술가운, 앞치마 대신 입히면 속옷은 괜찮을까?](https://m.blog.naver.com/zova1/224474663465) · 2026-11-12
 - [광주 RSV 예방접종, 같은 아기 주사에 12만 원 차이](https://m.blog.naver.com/zova1/224474668092) · 2026-11-12
