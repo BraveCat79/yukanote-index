@@ -5,8 +5,9 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (330편)
+## 글 목록 (331편)
 
+- [유치원 알리미 원비, 교육과정과 방과후과정 두 칸으로 견주기](https://m.blog.naver.com/zova1/224477512861) · 2026-11-15
 - [신생아 딤플 초음파 정상이어도 MRI를 6개월 안에 찍는 이유](https://m.blog.naver.com/zova1/224476600892) · 2026-11-14
 - [하베브릭스 아기체육관 조립 뒤엔 접어서 보관하는 접이식 구조](https://m.blog.naver.com/zova1/224476604521) · 2026-11-14
 - [목동 아이스링크 평일 오후 2시 개장, 주말은 정오에 빙판이 열려요](https://m.blog.naver.com/zova1/224477048023) · 2026-11-14
