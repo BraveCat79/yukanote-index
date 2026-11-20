@@ -5,8 +5,9 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (350편)
+## 글 목록 (351편)
 
+- [국립중앙과학관 꿈아띠 예약은 관람일 30일 전 0시에 열려요](https://m.blog.naver.com/zova1/224483779435) · 2026-11-19
 - [아동급식카드 잔액조회 지역마다 앱이 다른데 우리 동네는 어디서 볼까](https://m.blog.naver.com/zova1/224481251131) · 2026-11-18
 - [유치원 일반모집 인원확인방법, 11월 16일 18시 전 숫자는 우선모집 요강](https://m.blog.naver.com/zova1/224482387388) · 2026-11-18
 - [복지로 산후도우미 신청방법 출산 40일 전부터 받는 네 단계](https://m.blog.naver.com/zova1/224482393207) · 2026-11-18
