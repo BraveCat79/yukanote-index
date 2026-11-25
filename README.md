@@ -5,10 +5,11 @@
 - 블로그: https://m.blog.naver.com/zova1
 - 글 목록 페이지: https://bravecat79.github.io/yukanote-index/
 
-## 글 목록 (370편)
+## 글 목록 (371편)
 
 - [소베맘 기저귀갈이대 세탁 대신 닦아 쓰는 PVC 매트, 볼 것 4가지](https://m.blog.naver.com/zova1/224489291543) · 2026-11-24
 - [국립부산과학관 빌드업, 오전 입장은 12시 30분이면 끝나요](https://m.blog.naver.com/zova1/224489312921) · 2026-11-24
+- [나뚜 애착담요 신생아 출산선물로 골라도 괜찮을까?](https://m.blog.naver.com/zova1/224490333093) · 2026-11-24
 - [유보통합포털 결과 11월 26일 오후 3시, 선발만 두면 포기 처리돼요](https://m.blog.naver.com/zova1/224487937751) · 2026-11-23
 - [초등 예비소집일 날짜가 전국 같은 날이 아니면 어디서 보나요?](https://m.blog.naver.com/zova1/224488073289) · 2026-11-23
 - [쥬얼스타 캐치티니핑 시즌7 라임핑 QR 메달은 폰이 있어야 읽혀요](https://m.blog.naver.com/zova1/224488112835) · 2026-11-23
